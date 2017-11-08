@@ -2,3 +2,4 @@
 2. Những Bản Nhạc Tiếng Anh Bất Hủ Hay Nhất Mọi Thời Đại - Nhạc Không Lời Tiếng Anh - https://www.youtube.com/watch?v=-qSLp44q2qQ&t=1357s
 3. The Best Of YIRUMA | Yiruma's Greatest Hits ~ Best Piano - https://www.youtube.com/watch?v=8Z5EjAmZS1o&t=3223s
 4. The Best of Yiruma (이루마) — 2 Hour Relaxing Piano Playlist ~ ♪ HQ Best Piano Study Music ♪ - https://www.youtube.com/watch?v=r-dWl-5ier4
+5. Những Ca Khúc Tiếng Anh Hay Nhất Về Tình Yêu - https://www.youtube.com/watch?v=8GcGpquh_Gs&pbjreload=10
